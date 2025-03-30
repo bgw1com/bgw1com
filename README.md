@@ -1,4 +1,4 @@
-- 👋 爆瓜网最新登陆地址：https://bgw02.com （免翻墙）
+- 👋 爆瓜网最新登陆地址：https://bgw03.com （免翻墙）
 - 👀 官方交流群：https://t.me/+38BPzFtnrPE0NGY1
 - 🌱 商务TG：https://t.me/baoguawang
 - 💞️ 爆瓜网永久域名：https://bgw1.com
