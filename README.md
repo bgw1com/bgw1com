@@ -1,3 +1,4 @@
+(更新日期：2025/07/08)
 - 👋 爆瓜网最新登陆地址：https://bgw14.com （免翻墙）
 - 👀 官方交流群： https://t.me/+bTlb5UEbD480NTVl
 - 🌱 商务TG：https://t.me/baoguawang
