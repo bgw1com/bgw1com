@@ -1,5 +1,5 @@
-(更新日期：2025/07/15)
-- 👋 爆瓜网最新登陆地址：https://bgw15.com （免翻墙）
+(更新日期：2025/07/17)
+- 👋 爆瓜网最新登陆地址：https://bgw16.com （免翻墙）
 - 👀 官方交流群： https://t.me/+bTlb5UEbD480NTVl
 - 🌱 商务TG：https://t.me/baoguawang
 - 💞️ 爆瓜网永久域名：https://bgw1.com
